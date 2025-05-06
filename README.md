@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning new things, such as automation.
 - 🌱 I’m currently learning automation, java and playwright
 - 💞️ I’m looking to collaborate on projects that will grow my understanding
-- 📫 How to reach me dbaweatherford@gmail.com or on LinkedIn https://www.linkedin.com/in/anastasia-weatherford-b7981bb/
+- 📫 How to reach me dbaweatherford@gmail.com or on LinkedIn https://www.linkedin.com/in/anastasia-weatherford
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: I taught myself how to crochet and knit.
 
